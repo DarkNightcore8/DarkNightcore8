@@ -4,6 +4,6 @@
 - 📫 How to reach me: https://go.sf71.it/linktree
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I know very little about html and I don't know css 
-- 📃 Website: https://sincererflame71.it/
+- 📃 Website: https://sf71.it/
 ### Have a good day! ❤
 
